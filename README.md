@@ -1,0 +1,4 @@
+- 👋 Hi, I’m ☬ꢺᴜʀʏᴀɴꜱʜ𒆜
+- 👀 In class 12th 
+- 🌱 And i live in Gaya Bihar 
+- 💞️ Join for entertainment :- https://t.me/+MDNWqFeCQiU1ODdl
